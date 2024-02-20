@@ -27,4 +27,4 @@ So, here's to many more hacks, adventures, and triumphs in the days to come. And
 Until next time, keep hacking and stay legendary!
 
 Yours in hacking greatness,  
-[Your Legendary Hacker Name]
+h4ck3rh4rry
